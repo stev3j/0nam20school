@@ -1,1 +1,0 @@
-# 0nam20school
